@@ -64,6 +64,8 @@ haverá mais recompras! NÃO FAZ SENTIDO VOCÊ FICAR ESPERANDO 1:1 COMPRE AGORA 
 
 - Em alguns dias nesta semana vou liberar aqui meu robô em windows para vocês baixarem ou compilarem e deixar rodando na exchange!
 
+- Sempre retire com saques pequenos seus lucros, pois são processados bem mais rápido, reparei que 0.01 BTC saem bem rápido! Por saque!
+
 Entre no nosso grupo de discussão no telegram:
 https://t.me/robobtcq/
 
